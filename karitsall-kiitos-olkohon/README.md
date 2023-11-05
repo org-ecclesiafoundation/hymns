@@ -91,6 +91,6 @@ And in response offer ourselves to You.
 
 9. We, dearest Jesus, belong to You  
 Our faith, it clings to Your Word, true!  
-We rest in You, Lord, joyfully,  
+In You we rest, Lord, joyously,  
 and find in You our peace eternally.  
 

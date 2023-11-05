@@ -59,7 +59,10 @@ His Son, sufficient price for us to save.
 Flow'd from five wounds; He was pierc'd for us.  
 O Sinner, take and drink; receive and trust.  
 
-3. [TODO]
+3. Because the Son for us contests,  
+On us the Father's favor rests;  
+He bought us that we might be His own,  
+And serve Him as He reigns upon his throne.  
 
 4. [TODO]
 

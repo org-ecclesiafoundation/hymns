@@ -67,9 +67,12 @@ And serve Him as He reigns upon his throne.
 4. His blood defends us from all harm,  
 From Satan's power, and all alarm;  
 We're wash'd in Jesus' precious blood,
-We're therefore clothed for heaven's highest good.
+And therefore clothed for heaven's highest good.
 
-5. [TODO]
+5. These garments let us into the feast
+In celebration with all the Saints;
+His wounds redeem us from our sin,
+Our hope in heaven is found therein.
 
 6. [TODO]
 

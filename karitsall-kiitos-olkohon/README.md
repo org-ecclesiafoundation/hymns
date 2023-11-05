@@ -46,3 +46,27 @@ Täss' olen, Jesus omanas.
 Sä olet myös mun uskon kanss';  
 Sinussa ijankaikkisest'  
 Tott' rauhaa nautin riemuisest'.  
+
+## English Translation
+
+1. Give thanks to the Lamb eternally  
+Who died for us upon the tree;  
+God loved the world so that He gave  
+His Son, sufficient price for us to save.  
+
+2. [TODO]
+
+3. [TODO]
+
+4. [TODO]
+
+5. [TODO]
+
+6. [TODO]
+
+7. [TODO]
+
+8. [TODO]
+
+9. [TODO]
+

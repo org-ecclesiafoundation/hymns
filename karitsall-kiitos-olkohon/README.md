@@ -64,7 +64,10 @@ On us the Father's favor rests;
 He bought us that we might be His own,  
 And serve Him as He reigns upon his throne.  
 
-4. [TODO]
+4. His blood defends us from all harm,  
+From Satan's power, and all alarm;  
+We're wash'd in Jesus' precious blood,
+We're therefore clothed for heaven's highest good.
 
 5. [TODO]
 

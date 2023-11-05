@@ -84,7 +84,13 @@ His crucifixion was our gain.
 For you, for me, for all mankind,  
 His sacrifice sufficed for us combined.  
 
-8. [TODO]
+8. Now thanks and glory to Jesus be,  
+In Truth for Your love's sake. May we  
+Remember Your affliction true,  
+And in response offer ourselves to You.  
 
-9. [TODO]
+9. We, dearest Jesus, belong to You  
+Our faith, it clings to Your Word, true!  
+We rest in You, Lord, joyfully,  
+and find in You our peace eternally.  
 

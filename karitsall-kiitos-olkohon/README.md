@@ -54,7 +54,10 @@ Who died for us upon the tree;
 God loved the world so that He gave  
 His Son, sufficient price for us to save.  
 
-2. [TODO]
+2. The blood redeems us from all sin;  
+'Twas shed by Jesus, us to win.  
+Flow'd from five wounds; He was pierc'd for us.  
+O Sinner, take and drink; receive and trust.  
 
 3. [TODO]
 

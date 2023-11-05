@@ -77,9 +77,12 @@ Our hope in heaven is found therein.
 6. His wounds stand open, well-defined,  
 In them his precious lambs recline;  
 Still, in them there is room for you,  
-Draw near the source, as the faithful do.  
+Draw near the source, as all the faithful do.  
 
-7. [TODO]
+7. Blood flowed from Jesus' wounds with pain;  
+His crucifixion was our gain.  
+For you, for me, for all mankind,  
+His sacrifice sufficed for us combined.  
 
 8. [TODO]
 

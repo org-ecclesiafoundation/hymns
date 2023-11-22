@@ -48,7 +48,10 @@ Sinussa ijankaikkisest'
 Tott' rauhaa nautin riemuisest'.  
 
 ## English Translation  
-### Translated by Matthew Laine; Edited by Tapani Simojoki
+
+Translator: Matthew Laine
+
+Editor: Tapani Simojoki
 
 1. The Lamb be praised eternally  
 Who died for us upon the tree;  

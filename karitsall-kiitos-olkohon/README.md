@@ -1,6 +1,6 @@
-# Karitsall' Kiitos Olkohon (Orig. Finnish)
+# Karitsall' Kiitos Olkohon (Orig. Finnish)  
 
-## Original Lyrics
+## Original Lyrics  
 
 1. Karitsall' kiitos olkohon  
 Alat', kosk' teurastettu on,  
@@ -47,50 +47,50 @@ Sä olet myös mun uskon kanss';
 Sinussa ijankaikkisest'  
 Tott' rauhaa nautin riemuisest'.  
 
-## English Translation
+## English Translation  
 
-1. Give thanks to the Lamb eternally  
+1. The Lamb be praised eternally  
 Who died for us upon the tree;  
 God loved the world so that He gave  
-His Son, sufficient price for us to save.  
+His Son, the world from sin to save.  
 
-2. The blood redeems us from all sin;  
+2. His blood redeems us from all sin;  
 'Twas shed by Jesus, us to win.  
-Flow'd from five wounds; He was pierc'd for us.  
-O Sinner, take and drink; receive and trust.  
+From his five wounds it flows for us.  
+O Sinner, drink; receive and trust.  
 
-3. Because the Son for us contests,  
-On us the Father's favor rests;  
-He bought us that we might be His own,  
-And serve Him as He reigns upon his throne.  
+3. Because His blood for us contests,  
+The Father's favor us attends;  
+He bought us that we be His own,  
+And serve Him ever round His throne.  
 
-4. His blood defends us from all harm,  
+4. His blood, it keeps us from all harm,  
 From Satan's power, and all alarm;  
-We're wash'd in Jesus' precious blood,  
-And therefore clothed for heaven's highest good.  
+With garments wash'd in Jesus' blood,  
+We're clothed for heaven's highest good.  
 
-5. These garments let us into the feast  
-In celebration with all the Saints;  
+5. Thus clothed we're ready for the feast  
+In company with all the Saints;  
 His wounds redeem us from our sin,  
-Our hope in heaven is found therein.  
+Our hope of heav'n is found therein.  
 
-6. His wounds stand open, well-defined,  
-In them his precious lambs recline;  
-Still, in them there is room for you,  
-Draw near the source, as all the faithful do.  
+6. His open wounds to us He shows,  
+In which His precious lambs repose;  
+A place for you He has prepared.  
+So hasten to the fountainhead.  
 
-7. Blood flowed from Jesus' wounds with pain;  
-His crucifixion was our gain.  
+7. The blood which flowed from Him in pain,  
+The crucifixion, was our gain.  
 For you, for me, for all mankind,  
-His sacrifice sufficed for us combined.  
+His blood for all of us sufficed.  
 
-8. Now thanks and glory to Jesus be,  
-In Truth for Your love's sake. May we  
-Remember Your affliction true,  
-And in response offer ourselves to You.  
+8. All thanks and glory, blessing be  
+To Jesus for such love. May we  
+Your agony and death recall;  
+Lord, I am yours, have me, my all.  
 
-9. We, dearest Jesus, belong to You  
-Our faith, it clings to Your Word, true!  
+9. So will I e'er belong to You  
+And You are mine, Your Word stands true!  
 In You we rest, Lord, joyously,  
-and find in You our peace eternally.  
+and dwell in peace eternally.  
 

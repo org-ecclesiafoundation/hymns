@@ -1,6 +1,6 @@
-# Karitsall' Kiitos Olkohon (Orig. Finnish)  
+# Karitsall' Kiitos Olkohon  
 
-## Original Lyrics  
+## Original (Finnish)  
 
 1. Karitsall' kiitos olkohon  
 Alat', kosk' teurastettu on,  

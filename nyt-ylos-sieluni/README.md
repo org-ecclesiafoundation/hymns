@@ -1,20 +1,19 @@
-# Nyt ylÃs, sieluni!
+# Nyt ylös, sieluni!
 
 ## Original (Finnish)
 
-1. Nyt ylÃ¶s, sieluni!
-1. Nyt yls, sieluni!  
-Nouse ylÃs mullasta tÃstÃ,  
-RiennÃ¤jalkain juuren Jumalan ja Karitsan,  
-Ja vaikka silmÃni  
-ei sitÃ valoa kestÃ,  
-Niin riemuhuudolla kuitenki lÃhde laulamaan,  
-SillÃ¤iloon tÃyteen,  
-Kuin taivaas' lÃytÃÃn,  
-Karitsan suuriin hÃihin olet ostettu,  
+1. Nyt ylös, sieluni!
+Nouse ylös mullasta tästä,  
+Riennä jalkain juuren Jumalan ja Karitsan,  
+Ja vaikka silmäni  
+ei sitä valoa kestä,  
+Niin riemuhuudolla kuitenki lähde laulamaan,  
+Sillä iloon täyteen,  
+Kuin taivaas' löytään,  
+Karitsan suuriin häihin olet ostettu,  
 Kaikki taivaan kunnia  
 Suuresta armosta,  
-Se on sun osasi, PerintÃs ja tavaras,  
+Se on sun osasi, Perintös ja tavaras,  
 Siis iloitse ja ajattele autuuttas!  
 
 2. Et siinain juurella  
@@ -22,14 +21,14 @@ Pelvoss' ja pimeydes'
 Tarvitse seisoa ettÃs olet kutsuttu  
 Siionin vuorelle,  
 Salemin ihmeess' uudess',  
-Sen uuden testamentin vÃlimiehen tykÃ,  
+Sen uuden testamentin välimiehen tykö,  
 Jos maailma pauhaa,  
-TÃssÃ synnin rauhaa,  
-Niin veisaa sinÃ kiitosta, Halleluja!  
-Ja vaikkas olet tÃÃl',  
+Tässä synnin rauhaa,  
+Niin veisaa sinä kiitosta, Halleluja!  
+Ja vaikkas olet tääl',  
 Maallisess' majass' viel,  
-Niin saapi sydÃn kuitenki olla kotonans,  
-SiellÃ mahtaa se olla yÃt ja pÃivÃt kokonans.  
+Niin saapi sydän kuitenki olla kotonans,  
+Siellä mahtaa se olla yöt ja päivät kokonans.  
 
 ## English Translation
 

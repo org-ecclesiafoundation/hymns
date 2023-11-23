@@ -2,7 +2,8 @@
 
 ## Original (Finnish)
 
-1. Nyt yl√s, sieluni!  
+1. Nyt yl√∂s, sieluni!
+1. Nyt yls, sieluni!  
 Nouse yl√s mullasta t√st√,  
 Rienn√§jalkain juuren Jumalan ja Karitsan,  
 Ja vaikka silm√ni  

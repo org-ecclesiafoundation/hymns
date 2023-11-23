@@ -86,6 +86,34 @@ Kuin nyt lyö murheeseen,
 Saa vaihetella pyhyyteen ja kunnian,  
 Ja kiitosta veisata Jumalalle ainiaan.  
 
+7. Jos se kuin puolittain  
+Ja himmiöillä silmillä vielä  
+Täällä nähden niinkuin peilissä tuotta ilontain,  
+Jos ääni taivahan  
+Täällä korvissa kajahtelee,  
+Kuinka silloin, koska kasvoista kasvoin katsahdellaan?  
+Koska ajattelen,  
+Näitä muistuttelen,  
+Niin maistan mä ja näen Herran suloisuutt';  
+Mutta koska muistanen,  
+Kuinka siellä eletään,  
+Kuinka lankeevat kaikki pyhät eteen istuimen,  
+Niin täällä myös tahdon nöyryytellä enemmän.  
+
+8. Se uusi veisuu siell'  
+Aina Herran kunniaks soinee,  
+Mutta vanhaksi eikä lopulle joudu ikänään,  
+Sen tahdon oppia tääl'  
+Niin paljo kuin mä voinen,  
+Ja uskon halussa katsella mun Jesukseen',  
+Kuin synnitettiin  
+Ja kuoletettiin,  
+Ja verellänsä meitä Jumalalle lunasti,  
+On mahdollinen  
+Hän Nyt saamaan kiitoksen,  
+Ja viisauden, voiman, rikkaun, kunnian,  
+Ja amen taivas, maa ja meri sanokaan.  
+
 ## English Translation
 
 Translator: Matthew Laine

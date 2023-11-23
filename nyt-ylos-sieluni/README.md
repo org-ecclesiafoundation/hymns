@@ -72,7 +72,19 @@ Siellä joka taholta,
 Saan kuulla sulaa ilon huudon kajaust',  
 Ja nähdä Herran suurta valoa, kirkkautt'.
 
-
+6. Ah koska kerran saan  
+Mä herätä kuvansa jälkeen  
+Ja silmilläni katsella mun Jumalaan'!  
+Ei enää sieluan'  
+Sitte vaivaa jano, nälkä,  
+Mikä kunnia että olla valmis emäntä Karitsan!  
+Saan kruununi,  
+Myös pukuni,  
+Se puhdas silkki pyhien vanhurskaus,  
+Koska synnin pesän sen,  
+Kuin nyt lyö murheeseen,  
+Saa vaihetella pyhyyteen ja kunnian,  
+Ja kiitosta veisata Jumalalle ainiaan.  
 
 ## English Translation
 

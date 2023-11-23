@@ -69,7 +69,7 @@ He bought us that we be His own,
 And serve Him ever round His throne.  
 
 4. His blood, it keeps us from all harm,  
-From Satan's power, and all alarm;  
+From Satan's pow'r, and all alarm;  
 With garments wash'd in Jesus' blood,  
 We're clothed for heaven's highest good.  
 

@@ -18,7 +18,7 @@ Siis iloitse ja ajattele autuuttas!
 
 2. Et siinain juurella  
 Pelvoss' ja pimeydes'  
-Tarvitse seisoa ettÃs olet kutsuttu  
+Tarvitse seisoa ettäs olet kutsuttu  
 Siionin vuorelle,  
 Salemin ihmeess' uudess',  
 Sen uuden testamentin välimiehen tykö,  

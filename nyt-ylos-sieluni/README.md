@@ -2,7 +2,7 @@
 
 ## Original (Finnish)
 
-1. Nyt ylös, sieluni!
+1. Nyt ylös, sieluni!  
 Nouse ylös mullasta tästä,  
 Riennä jalkain juuren Jumalan ja Karitsan,  
 Ja vaikka silmäni  

@@ -30,6 +30,22 @@ Maallisess' majass' viel,
 Niin saapi sydän kuitenki olla kotonans,  
 Siellä mahtaa se olla yöt ja päivät kokonans.  
 
+3. Niin tutki todella,  
+Mikä kirkkaus ja valo,  
+Mikä ilon huuto, mikä harppuin helinä!  
+Mikä taivaan hekuma!  
+Mikä voiton veisuu jalo!  
+Sä vielä kerran kuulla saat siellä ylhäällä,  
+Istuimen edess',  
+Kussa palmut kädess'  
+Kaikki pyhät kruunuinensa maahan lankevat,  
+Siellä veisaa Kerubim,  
+Siellä laulaa Serafim,  
+Kanssa valittuiden joukko tykönä Karitsan,  
+Jotka paistavat kuin kirkkaat tähdet taivahan.  
+
+
+
 ## English Translation
 
 Translator: Matthew Laine

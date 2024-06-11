@@ -1,16 +1,11 @@
 # Karitsall' Kiitos Olkohon  
 
+## Original (Finnish)
 
-| Original (Finnish) | Translation (English) |
-|--------------------|-----------------------|
-
-| 1. Karitsall' kiitos olkohon  
+1. Karitsall' kiitos olkohon  
 Alat', kosk' teurastettu on,  
 Ja hinnan ijät' kelpaavan  
-Maksoi edest' kaiken maailman.  | 1. The Lamb be praised eternally  
-Who died for us upon the tree;  
-God loved the world so that He gave  
-His Son, the world from sin to save. 
+Maksoi edest' kaiken maailman.  
 
 2. Se verens synnist' puhdistaa,  
 Kuin vuosi viidest' haavasta;  
@@ -51,16 +46,18 @@ Täss' olen, Jesus omanas.
 Sä olet myös mun uskon kanss';  
 Sinussa ijankaikkisest'  
 Tott' rauhaa nautin riemuisest'.  
-</div>
 
-<div class="column">
+
 ## English Translation  
 
 Translator: Matthew Laine
 
 Editor: Tapani Simojoki
 
- 
+1. The Lamb be praised eternally  
+Who died for us upon the tree;  
+God loved the world so that He gave  
+His Son, the world from sin to save. 
 
 2. His blood redeems us from all sin;  
 'Twas shed by Jesus, us to win.  
@@ -101,5 +98,3 @@ Lord, I am yours, have me, my all.
 And You are mine, Your Word stands true!  
 In You we rest, Lord, joyously,  
 and dwell in peace eternally.  
-</div>
-</div>

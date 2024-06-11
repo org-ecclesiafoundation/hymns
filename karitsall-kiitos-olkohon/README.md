@@ -1,12 +1,12 @@
 # Karitsall' Kiitos Olkohon  
 
-| Original (Finnish)              | Translation (English)|
-|-------------------------------|----------------------|
-| 1. Karitsall' kiitos olkohon  
+## Original (Finnish)
+
+1. Karitsall' kiitos olkohon  
 Alat', kosk' teurastettu on,  
 Ja hinnan ijät' kelpaavan  
-Maksoi edest' kaiken maailman.  |
-|-------------------------------|
+Maksoi edest' kaiken maailman.  
+
 2. Se verens synnist' puhdistaa,  
 Kuin vuosi viidest' haavasta;  
 Täss' synnin makso kullainen,  

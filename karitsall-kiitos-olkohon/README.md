@@ -1,5 +1,6 @@
 # Karitsall' Kiitos Olkohon  
 
+||---||
 ## Original (Finnish)  
 
 1. Karitsall' kiitos olkohon  
@@ -97,4 +98,4 @@ Lord, I am yours, have me, my all.
 And You are mine, Your Word stands true!  
 In You we rest, Lord, joyously,  
 and dwell in peace eternally.  
-
+||---||

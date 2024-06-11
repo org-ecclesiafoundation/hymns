@@ -1,5 +1,23 @@
+<!DOCTYPE html>
+<html>
+<head>
+<style>
+.container {
+  display: flex;
+}
+
+.column {
+  flex: 50%;
+  padding: 10px;
+}
+</style>
+</head>
+<body>
+
 # Karitsall' Kiitos Olkohon  
 
+<div class="container">
+  <div class="column">
 ## Original (Finnish)
 
 1. Karitsall' kiitos olkohon  
@@ -46,7 +64,9 @@ Täss' olen, Jesus omanas.
 Sä olet myös mun uskon kanss';  
 Sinussa ijankaikkisest'  
 Tott' rauhaa nautin riemuisest'.  
+</div>
 
+<div class="column">
 ## English Translation  
 
 Translator: Matthew Laine
@@ -97,4 +117,5 @@ Lord, I am yours, have me, my all.
 And You are mine, Your Word stands true!  
 In You we rest, Lord, joyously,  
 and dwell in peace eternally.  
-||---||
+</div>
+</div>
